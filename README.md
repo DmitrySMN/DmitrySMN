@@ -1,1 +1,1 @@
-![alt text]([https://sun9-74.userapi.com/impg/L6WCVcVYRnLzZLDSg63TfYtskn_mqihxHZoHxg/Q6ZboCknba4.jpg?size=640x649&quality=95&sign=3531b951a5c4394d1890d50e6781fd4c&type=album](https://sun9-66.userapi.com/impg/X_SWdSoOXm-baid7r8kvtiNlVteaCmWABFkYYw/nOx-n_mtvPI.jpg?size=687x898&quality=96&sign=806ea87d0d35c87d906327d1ae40aa0c&type=album)
+![alt text](https://sun9-66.userapi.com/impg/X_SWdSoOXm-baid7r8kvtiNlVteaCmWABFkYYw/nOx-n_mtvPI.jpg?size=687x898&quality=96&sign=806ea87d0d35c87d906327d1ae40aa0c&type=album)
